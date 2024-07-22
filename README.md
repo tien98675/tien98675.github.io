@@ -1,1 +1,3 @@
 - [https://x.com/tien98675](https://x.com/tien98675)
+- [https://www.quora.com/profile/Rat-Tien](https://www.quora.com/profile/Rat-Tien)
+- [https://medium.com/@tien98675](https://medium.com/@tien98675)
